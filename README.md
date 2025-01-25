@@ -2,7 +2,7 @@
 - 👀 I’m interested in anime and anything random
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me instagram @zuraz_z3
+- 📫 How to reach me Tiktok @notyouranomaly
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: slightly dumb
 
